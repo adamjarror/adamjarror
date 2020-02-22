@@ -1,0 +1,2 @@
+# adamjarror
+anak kuliahan
